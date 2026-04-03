@@ -1,6 +1,6 @@
 # Pavel Bazyleu #
 ## *musician cellist* ##
-![PB](https://github.com/bazilp77/rsschool-cv/blob/gh-pages/mayka.png)
+![PB](https://https://github.com/bazilp77/rsschool-cv/blob/gh-pages/SDC11620%20(1).JPG)
 ## Contact ## 
  * +375447759974
  * bazilp77@gmail.com *
