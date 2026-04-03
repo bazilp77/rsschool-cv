@@ -1,6 +1,6 @@
 # Pavel Bazyleu #
 ## *musician cellist* ##
-![PB](https://photos.app.goo.gl/NDr1puZWHdWDP7jY9)
+![PB](/assets/images/sdc11620(1).jpg)
 ## Contact ## 
  * +375447759974
  * bazilp77@gmail.com *
