@@ -1,1 +1,1 @@
-# rsscool-cv
+https://bazilp77.github.io/rsschool-cv/
